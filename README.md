@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Fatel030
+- 👋 Hi
 - 👀 I’m interested in games,such as Genshin Impact, Hotta and Apex. 
 - 🌱 I’m currently learning Electrical Engineering.
 - 📫 How to reach me : FB/Line/Gmail/private message
